@@ -1,0 +1,23 @@
+<!DOCTYPE html>
+<html>
+<head>
+<title>Skating Traits you need explained by  PSYCHO<title>
+</head>
+<body>
+
+<h1>Skating Traits Skaters NEED explained by  Psycho</h1>
+<p>Traits to have before thinking about becoming a professional figure skater. 
+1.HANDLING CRITICISM: 
+Criticism plays a big role all sports, not just skating. Without criticism/critique, an athlete cannot improve forward. Either way, the ability of handling criticism whiletake it lightly, yet considering it deeply is an essential skill for figure skaters to obtain. Most coaches speak and judge very straightforwardly about what they think, which is not a bad thing--considering this sports is practically all about who-is-better.  However, sensitive people who take criticism heavily will have a difficult time in enjoying the process of professional practicing. Everyday second on the ice is a cycle of think, skate, critique, repeat--you will become very stressed with a buncha headaches from all of the above. Just say'in~
+
+2. being good at staying consistent: Practicing is literally equal to staying consistent. So no matter how "dead" (the term  y'all modern peeps use these day use :)) or stressed you are from something that happened earlier, before skating, or if you are stressing about whatever task you need to do for anything [maybe school] after skating... NOW IS NOT THE TIME. So essentially, you need to be able to get yo shit together, metally, emotionally, and physically before your practice session and GET. THINGS. DONE. Cause you'll only have limited ice time due to the expensive money it takes to skate on an icy platform. Not only that, but you'll still have to do other "stuff"-refering to homework after school. So Yah. Stay Sane Skaters!
+3) time-and-everything organizer: Yep. here this topic comes again. TIME MANAGEMENT. Yes. Without extreme amounts of time management, you will collaspe. period. 
+Here's my advice. You don't need anything fancy. No $20 fancy 2022 calendars or tutorials. All you need is a piece of white paper and a pen. Now, jot down all the school projects in one column and all your regular school assignment in another column. Then, on your bottom left hand corner, write your skating goals+when you are going to get there. On the right bottom corner, write your warmup, skating, and off ice routine. Finally, calculate the amount of hours you have from wake to sleep and split the time realistically between everything. Keep that piece of paper near you, everywhere you go. BOOM! SCHEDULE ORGANIZED! Except, following what you wrote will be the hardest part now...
+And it is whether or not you complete those tasks that will determine your progress. Ouch, that came out rough. But just keep in mind that most days those goal dates may need a couple more months or even another year to complete. 
+4) very strict person about what you do 
+As a figure skater who is not very strict of what I do, I've developed a habit of being a completely differnt person on the ice. If I can, you can do it too. So not having this trait, actually "these" trait, doesn't mean you can't be a great skater. Some of these are learned through experience. "Bad experiences though. However, at like 8, hwen i had all my doubles, I was a pretty strict person to myself--like that was literally my personality, and that is also what i think got me to succeed really fast during those years. However, after encountering a long-term abusive coaching, my natural traits slowly deceased and now, that personality is gone as well. For now, I think that oh! I just have to be strict to myself for 3hrs, then I'm good. Off the ice I can joke and tease and rebel as much as I want, but the minute I step onto the ice...I have to be strict. um, through expeincei've also learned that having close, genuine, relatable skating friends can also help you throughg your practice sessions. Just being able to chat with them for 5minutes in the middle of practice can really help. Also, I'be been wearing earbuds to jam to my favorite music playlists during practice, and that has really got me skating hard. So these are some of the things I do to try to overcome this trait-that-i-no-longer-have. 
+5) loving to perform
+This trait I definitely have. Maybe just not toward parents, which seen to be everywhere. At the ice rink, I feel like I need to be a certain person in front of everyone. But truly, if i had private ice, I would literally be something else. That something else would be my true personality. Idk, skating doesn't allow you to be yourself. It's extremely sad. All the girls that skate are one style and it's absolutely disguisting. 6) loving competition 7) somewhat athletic8)memory</p>
+
+</body>
+</html>
